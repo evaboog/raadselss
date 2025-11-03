@@ -5,3 +5,4 @@ Het antwoord is natuurlijk noedels.
 Heeft een citroen pootjes?
 Nee?
 Een vliegtuig stort neer precies op de grens van China en Rusland. Waar worden de overlevenden begraven?
+Nergens, wat overlevenden begraaf je niet.
